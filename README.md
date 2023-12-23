@@ -1,1 +1,1 @@
-# Github-Yardım
+# Github-Yardım.
